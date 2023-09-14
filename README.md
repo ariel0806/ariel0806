@@ -1,4 +1,6 @@
 ### Hi there 👋
+### I am Bae Ji-hee, majoring in psychology at Gachon University.
+### Thank You.
 
 <!--
 **ariel0806/ariel0806** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
