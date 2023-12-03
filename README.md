@@ -1,5 +1,5 @@
 ### Hi there 👋
-### I am Bae Ji-hee, 🌱 I’m currently majoring in psychology at Gachon University.
+### I am Bae Ji-hee, 🌱 I’m currently majoring in psychology
 ### Thank You!
 
 <!--
